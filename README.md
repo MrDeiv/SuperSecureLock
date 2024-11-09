@@ -1,2 +1,7 @@
-# SuperSecureLock
-Repository super segreta. Se la trovate, non accede. Per favore...
+「 ✦ STORAGE SICURO SEGRETISSIMO ✦ 」
+
+Qui salviamo tutti i nostri segreti. Per favore, se trovare questa repository non guardate... davvero... plase
+
+( ._. )""
+
+
