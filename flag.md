@@ -1,1 +1,0 @@
-flag{serve_una_idea_migliore}
